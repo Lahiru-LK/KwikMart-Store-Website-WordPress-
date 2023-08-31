@@ -3,7 +3,7 @@ KwickMart: [https://lnkd.in/gxFSASYt](https://www.maleesha.creditshub.tech/)
 
 🛒 Presenting KwickMart: Revolutionizing E-Commerce 🚀
 
-https://github.com/Lahiru-LK/NewTest01/assets/104630433/7d4646df-6db2-4f3d-af74-93e8f4a7c692
+[https://github.com/Lahiru-LK/NewTest01/assets/104630433/7d4646df-6db2-4f3d-af74-93e8f4a7c692](https://github.com/Lahiru-LK/KwikMart-Store-Website-WordPress-/assets/104630433/e63c19b0-0e6e-4f10-8abd-acc8097f5943)
 
 We are thrilled to introduce KwickMart, an ambitious project that redefines the e-commerce landscape with a groundbreaking online shopping platform. This venture was made possible through the collective efforts of our dedicated team, which includes Maleesha Herath, Pathum Karunasinghe, Nimesh Jayaweera, Shanaka Priyanjth, Dhananjaya Rupasinghe, @Prageeth Siriwardana, Buddhi Sampath, and myself.
 
